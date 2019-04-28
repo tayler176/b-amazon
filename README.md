@@ -1,1 +1,3 @@
 # b-amazon
+
+THIS CONTAINS ENDGAME SPOILERS!
